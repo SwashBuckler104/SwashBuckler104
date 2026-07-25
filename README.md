@@ -165,7 +165,7 @@ https://sohankuna.com
 https://linkedin.com/in/sohankuna
 
 📧 Email  
-your_email@example.com
+sohan104kuna@gmail.com
 
 ---
 
